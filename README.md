@@ -1,16 +1,20 @@
-## Hi there 👋
+<img src="https://i.pinimg.com/736x/79/53/c6/7953c61b3fa2e998a7ede2ae02db84d0.jpg" width="100%" />
 
-<!--
-**711-KZA/711-KZA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+_____________________________________
+₍ᐢ. .ᐢ₎ ₊˚⊹♡ 𝑖𝑛𝑡𝑟𝑜𝑑𝑢𝑐𝑡𝑖𝑜𝑛 ୨୧
+⠀⠀⠀⠀
+_____________________________________
 
-Here are some ideas to get you started:
+୨୧ 𝐦𝐲 𝐧𝐢𝐜𝐤𝐧𝐚𝐦𝐞 𝐢𝐬 𝐊𝐳𝐚 ⪩. .⪨ .
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+୨୧ 𝐬𝐡𝐞/𝐡𝐞𝐫.
+
+୨୧ 𝐦𝐲 𝐛𝐢𝐫𝐭𝐡𝐝𝐚𝐲 𝐢𝐬 𝟎𝟕-𝟏𝟏 ! 
+
+(๑>؂•̀๑) 𝐩/𝐬:
+
+♡ˎˊ˗ 𝐈'𝐦 𝐨𝐟𝐭𝐞𝐧 𝐚𝐟𝐤 𝐬𝐨 𝐩𝐥𝐞𝐚𝐬𝐞 𝐰𝐡𝐢𝐬𝐩𝐞𝐫 𝐭𝐨 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭!
+
+_____________________________________
+
+<img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExZ3BzbDlsbDVyd3kyZ2JnOTdvbWExYTN1cDc2ZWs1b2JvOHo0ZzYzNiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/71ZZg019NdEQ0/giphy.gif" width="100%" />
